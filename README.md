@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+https://youtu.be/S08DA4_ZNEs?si=kstzfhsJNyEG5Kib
+
+Oryantasyon vize ödevi
